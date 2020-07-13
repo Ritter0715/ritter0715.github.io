@@ -1,1 +1,0 @@
-# ritter0715.github.io
